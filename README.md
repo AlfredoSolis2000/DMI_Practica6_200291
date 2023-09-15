@@ -16,7 +16,7 @@
 ## Screenshot
 ![scr.jpg](https://i.postimg.cc/rm9QNsNh/scr.jpg)
 
-![bbb.png](https://postimg.cc/mcChfjQQ)
+![bbb.png](https://i.postimg.cc/mcChfjQQ/bbb.png)
 
 
 &nbsp;
